@@ -4,4 +4,6 @@ este es un repositorio que estoy creando desde la web para importar al github de
                            ╱|、
                           (˚ˎ 。7  
                            |、˜〵          
-                          じしˍ,)ノ
+                           じしˍ,)ノ
+
+                           ૮꒰ ˶• ༝ •˶꒱ა ♡
